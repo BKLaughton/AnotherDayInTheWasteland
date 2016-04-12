@@ -39,4 +39,4 @@
 
     Fuck I hate Preston.I have actually purposefully been doing other shit just to fuck with him. On the plus side, he’s a rabid moralist, and he constantly analyses every single fucking thing I do. Yes, his bullshit is tiresome, but as with Codsworth, I do find it keeps me grounded. Still, part of me looks forward to his untimely death.
 
-### [___BACK TO ROOT___](/README.md)
+### [BACK](/README.md)
