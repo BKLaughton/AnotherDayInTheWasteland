@@ -1,5 +1,6 @@
-# [25-Dec-2287] Ho ho ho, merry fucking Christmas: six palettes of concrete in a junkyard shipping container...
-...think of the fortifications we could build with this! Hrm, what should I use this for? The co-op, perhaps? Nah! Let’s use it to make Tenpine Tower! Yeah the Paula’s aren’t going to like it, but they can take a hike. Woohoo the view is going to be glorious. Sorry Preston, but General’s word goes. Suck shit.
+## [25-Dec-2287] Ho ho ho, merry fucking Christmas: six palettes of concrete in a junkyard shipping container...
+
+* ...think of the fortifications we could build with this! Hrm, what should I use this for? The co-op, perhaps? Nah! Let’s use it to make Tenpine Tower! Yeah the Paula’s aren’t going to like it, but they can take a hike. Woohoo the view is going to be glorious. Sorry Preston, but General’s word goes. Suck shit.
 
 * [26-Dec-2287] Ok, have to adjust expectations. I have a lot of concrete, but not enough to build a ‘tower’. It’s still going to be grand, though; perhaps four storeys, raised off the ground, on concrete pillars. We’ll limit entry points to one or two of the columns, which’ll make for nice defensive chokepoints. We will have to leave the crops relatively unguarded with this approach, but I’ll install a fortified balcony overlooking them, so we can at least harry raiders from within the fortress if they go for the tato plants.
 
