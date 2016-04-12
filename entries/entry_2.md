@@ -1,6 +1,6 @@
-## [02-Dec-2287] I cleared the corvega factory of raiders for Rob and Elaine Paula, the couple living at Tenpines Bluff. Good lord, did I clear it, though...
+## [02-Dec-2287] I cleared the corvega factory of raiders... 
 
-* ...It was cathartic. My power armour is unfair, untouchable, and soothing as it chugs along. Chug chug chug chug chug. This is more fun than it should be. Rob and Elaine were surprised when I returned; they don’t know the Chugchug. How could they? They want to push me out of Tenpines now that I handled the raiders for them. They’ve got something else coming. Tenpines Bluff is mine.
+* ...for Rob and Elaine Paula, the couple living at Tenpines Bluff. Good lord, did I clear it, though: it was cathartic. My power armour is unfair, untouchable, and soothing as it chugs along. Chug chug chug chug chug. This is more fun than it should be. Rob and Elaine were surprised when I returned; they don’t know the Chugchug. How could they? They want to push me out of Tenpines now that I handled the raiders for them. They’ve got something else coming. Tenpines Bluff is mine.
 
 * __[04-Dec-2287]__ I need to find more raiders to kill. Preston mentioned some farm. Maybe the old beatnik co-op? Shadepine? Something like that, it’s not a place I’dve gone, before the war. Either way, I should check it out.
 
