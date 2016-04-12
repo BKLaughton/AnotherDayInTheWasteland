@@ -59,3 +59,5 @@
     The episode did completely change my mind about the quarry, though - fuck settling there, it’s a literally shooting gallery, and I can’t think of an intelligent way to defend it. Better to keep it as a mirelurk hatchery, I guess; we’ll set up some turrets on those enclosure, and come down periodically to feed them insect husks, or to harvest. It’d make a nice prison, if we end up needing one. 
 
     I think I might stay at Sunshine Barracks tonight.
+
+#### [_BACK_](/README.md)
