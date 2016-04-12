@@ -33,3 +33,5 @@
     Decided to cut deep into the urban wasteland to retrieve the Abernathy girl. Of course we get intercepted by a squad of super mutants three steps out of Concord. Christ, my power armour is fucked. 
 
     Moved on to defuse a situation at the Drumlin diner. Preston was pleased at the peaceful resolution. Can’t help but feel we’dve been better of killing someone. But who? Going to crash at Drumlin for now, see what I can do to jury rig chugchug back into serviceability. 
+
+#### [_BACK_](/README.md)
