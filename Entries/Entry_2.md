@@ -36,9 +36,3 @@
 * [24-Dec-2287] Preston Garvey’s motherfucking hat. We got into an argument, I took it, I gave it back. Now he’s not wearing it out of spite, so I have to look at his dumb head. Also, he keeps bitching at me to clean up the co-op. Jesus, if settling it is so important, go right ahead. Why does everyone look to me to do the most basic shit? 
 
     Fuck I hate Preston.I have actually purposefully been doing other shit just to fuck with him. On the plus side, he’s a rabid moralist, and he constantly analyses every single fucking thing I do. Yes, his bullshit is tiresome, but as with Codsworth, I do find it keeps me grounded. Still, part of me looks forward to his untimely death.
-
-> So I expanded upon a week's worth of anecdotal bullet points made whilst playing, and ended up with way too much writing: 8 pages worth. So as not to drop too massive of a textdump, I'll post smaller, more frequent entries (every other day or so).
-
-> Older Entries:
->
-> * [Entry 1](https://www.reddit.com/r/ArchDuke/comments/3t196a/fallouteu_another_day_in_the_wasteland_entry_1/)
