@@ -21,5 +21,3 @@
 * **[29-Nov-2287]** Things are looking up. Two new wastelanders have set up shop with me at the Red Rocket; Rainbow Jane and Silent Pete. Pete lives up to his name, which is grand, and is quite content acting as groundskeeper. Rainbow Jane wears a buzzcut, barbed chestpiece, and a wicked pipe rifle; she's on security, and she does not fuck around. Part of me suspects she's ex-raider, but so long as she's remains on point and keeps to herself, I'm not asking any questions. I don't even want to know how she got her nickname.
 
 * **[30-Nov-2287]** I found some basketball hoops in a scrapyard; maybe I should erect a court on one of the vacant lots in Sanctuary? The Red Rockets vs the Sanctuary Saints, 3 on 3, weekly showdown. Might be good for morale. Or is that completely crazy? I don't even know anymore. Fuck it, I'm putting the hoops up.
-
-[*(Link to original post)*](https://www.reddit.com/r/Fallout/comments/3sy11q/07nov2287_my_mister_handy_asked_me_if_i/)
