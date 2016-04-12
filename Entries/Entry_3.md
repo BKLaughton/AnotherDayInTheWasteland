@@ -28,7 +28,7 @@
 
 * __[03-Jan-2288]__ Sturges asked if he could tinker with the t45 suit we found at the museum of freedom, now that I have a t51 suit. I knew it. Ever since I moved it to the locked garage at Red Rocket, he’s been shiftless - his pointless hammering seems to have intensified, and become more… pointed.
 
-* __[04-Jan-2288]_ Abernathy’s got their other daughter kidnapped by some Raider named Clutch. Fucking how? Do they just not use any of the fortifications I built them? Do they not want daughters? I wonder if I could build scaffolding all the way to the top of that pylon…
+* __[04-Jan-2288]__ Abernathy’s got their other daughter kidnapped by some Raider named Clutch. Fucking how? Do they just not use any of the fortifications I built them? Do they not want daughters? I wonder if I could build scaffolding all the way to the top of that pylon…
 
     Decided to cut deep into the urban wasteland to retrieve the Abernathy girl. Of course we get intercepted by a squad of super mutants three steps out of Concord. Christ, my power armour is fucked. 
 
