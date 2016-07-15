@@ -8,7 +8,11 @@
 
 * __[28-Dec-2287]__ Fuck shit fuck. Dogpaste and Sticky Joe are back. Sorta. mutilate bits of them are reforming from the gore. Is it them? Who is doing this to me?! I can’t. I just. Fuck it, from now I cross downriver at the ford. I can’t take this. I can bring chugchug. I’m always safe with chugchug. Chugchugchugchug.
 
-* __[29-Dec-2287]__ When Preston and I had been making our way to rescue Lucy (who I strongly suspect might have ‘rescued’ herself, had we left it to her), we came across the ruins of College Square stations. The place was carnage, looked like some raiders had fortified the plaza, but got overrun by ghouls. That’s going to mean a lot of loot, if we can deal with the ferals. It’s going to be a gay old time. I’ve stripped and cleaned my shotgun, and attached a bayonet; the perfect weapon for when they come in close for a kiss. I’ve gotta admit, I’m excited. 
+* __[29-Dec-2288]__ Abernathy’s got their other daughter kidnapped by some Raider named Clutch. Fucking how? Do they just not use any of the fortifications I built them? Do they not want daughters? I wonder if I could build scaffolding all the way to the top of that pylon…
+
+    Decided to cut deep into the urban wasteland to retrieve the Abernathy girl. Of course we get intercepted by a squad of super mutants three steps out of Concord. Christ, my power armour is fucked. 
+
+    Moved on to defuse a situation at the Drumlin diner. Preston was pleased at the peaceful resolution. Can’t help but feel we’dve been better of killing someone. But who? Going to crash at Drumlin for now, see what I can do to jury rig chugchug back into serviceability. 
 
 * __[31-Dec-2287]__ Good tidings for new year’s eve: construction at Tenpines is coming along swimmingly. We scavenged half of College square (above ground), but got so much scrap that we’ve been forced to come back to Tenpines to drop off the takings, rest, and go at it again. Any objections the Paulas had to our ‘expansion’ of Tenpines evaporated when they saw Preston and I returning from College Station, literally dripping with radioactive ghoul giblets, carting no less that 500 pounds of scrap. One less problem to deal with. Oh, and I found a Mr Jangles spaceman plushie in a crashed airliner on the way back! Shaun is going to love it; will have to drop it in the crib at Sanctuary tomorrow, before cleaning up the rest of College square.
 
@@ -28,10 +32,6 @@
 
 * __[03-Jan-2288]__ Sturges asked if he could tinker with the t45 suit we found at the museum of freedom, now that I have a t51 suit. I knew it. Ever since I moved it to the locked garage at Red Rocket, he’s been shiftless - his pointless hammering seems to have intensified, and become more… pointed.
 
-* __[04-Jan-2288]__ Abernathy’s got their other daughter kidnapped by some Raider named Clutch. Fucking how? Do they just not use any of the fortifications I built them? Do they not want daughters? I wonder if I could build scaffolding all the way to the top of that pylon…
-
-    Decided to cut deep into the urban wasteland to retrieve the Abernathy girl. Of course we get intercepted by a squad of super mutants three steps out of Concord. Christ, my power armour is fucked. 
-
-    Moved on to defuse a situation at the Drumlin diner. Preston was pleased at the peaceful resolution. Can’t help but feel we’dve been better of killing someone. But who? Going to crash at Drumlin for now, see what I can do to jury rig chugchug back into serviceability. 
+* __[04-Jan-2287]__ When Preston and I had been making our way to rescue Lucy (who I strongly suspect might have ‘rescued’ herself, had we left it to her), we came across the ruins of College Square stations. The place was carnage, looked like some raiders had fortified the plaza, but got overrun by ghouls. That’s going to mean a lot of loot, if we can deal with the ferals. It’s going to be a gay old time. I’ve stripped and cleaned my shotgun, and attached a bayonet; the perfect weapon for when they come in close for a kiss. I’ve gotta admit, I’m excited. 
 
 #### [_BACK_](/README.md)
