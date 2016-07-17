@@ -60,4 +60,4 @@
 
     I think I might stay at Sunshine Barracks tonight.
 
-#### [_BACK_](/README.md)
+#### [_HOME_](/README.md)
