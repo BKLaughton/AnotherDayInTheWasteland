@@ -66,4 +66,4 @@
 
 * __[07-Mar-2288]__ Some mutants trashed Abernathy’s Tato plot. No big deal, I’m planning to switch it over to wholesale Razorgrain cultivation anyway. I’ll just tell Blake to pull the Tato plants entirely...
 
-#### [_HOME_](/README.md) 
+#### [_HOME_](/../../../AnotherDayInTheWasteland/) 
