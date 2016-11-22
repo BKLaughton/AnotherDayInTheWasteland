@@ -25,4 +25,4 @@
 
   I’d forgotten about the view from Fort Hagen’s rooftop. Soon.
   
-#### [_HOME_](/README.md) 
+#### [_HOME_](/../../../AnotherDayInTheWasteland/) 
