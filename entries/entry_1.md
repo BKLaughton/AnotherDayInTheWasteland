@@ -22,4 +22,4 @@
 
 * **[30-Nov-2287]** I found some basketball hoops in a scrapyard; maybe I should erect a court on one of the vacant lots in Sanctuary? The Red Rockets vs the Sanctuary Saints, 3 on 3, weekly showdown. Might be good for morale. Or is that completely crazy? I don't even know anymore. Fuck it, I'm putting the hoops up.
 
-#### [_HOME_](/../)
+#### [_HOME_](..)
