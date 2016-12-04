@@ -40,3 +40,8 @@
     Fuck I hate Preston.I have actually purposefully been doing other shit just to fuck with him. On the plus side, he’s a rabid moralist, and he constantly analyses every single fucking thing I do. Yes, his bullshit is tiresome, but as with Codsworth, I do find it keeps me grounded. Still, part of me looks forward to his untimely death.
 
 #### [_HOME_](/../../../AnotherDayInTheWasteland/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
