@@ -35,3 +35,8 @@
 * __[04-Jan-2287]__ When Preston and I had been making our way to rescue Lucy (who I strongly suspect might have ‘rescued’ herself, had we left it to her), we came across the ruins of College Square stations. The place was carnage, looked like some raiders had fortified the plaza, but got overrun by ghouls. That’s going to mean a lot of loot, if we can deal with the ferals. It’s going to be a gay old time. I’ve stripped and cleaned my shotgun, and attached a bayonet; the perfect weapon for when they come in close for a kiss. I’ve gotta admit, I’m excited. 
 
 #### [_HOME_](/../../../AnotherDayInTheWasteland/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
