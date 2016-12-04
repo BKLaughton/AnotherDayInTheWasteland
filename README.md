@@ -12,8 +12,4 @@ The terminal flickers to life with a reverberating thrum, revealing a file-tree 
 6. [Entry 6: [08-Mar-2288] Blake Abernathy sent word back that the wrecked Tato plants can’t be pulled...](/entries/entry_6.md)
 7. Entry 7: Unencrypting...
 
-#### [Follow B.K. Laughton:](http://bklaughton.com)
-<a href="http://instagram.com/BKLaughton" class="socicon-instagram"></a>
-<a href="http://twitter.com/bklaughton" class="socicon-twitter"></a>
-<a href="https://www.facebook.com/BK-Laughton-607374252750161/" class="socicon-facebook"></a>
-<a href="http://reddit.com/r/ArchDuke" class="socicon-reddit"></a>
+#### [Follow B.K. Laughton:](http://bklaughton.com) [Instagram](http://instagram.com/BKLaughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
