@@ -1,4 +1,4 @@
-# Another day in the wasteland.
+# Another day in the wasteland<span class="blinking-cursor">&#9632;</span>
 ---
 
 The terminal flickers to life with a reverberating thrum, revealing a file-tree crowded with time-stamped text files. You seem to have happened upon some sole survivor's personal log...
@@ -12,7 +12,6 @@ The terminal flickers to life with a reverberating thrum, revealing a file-tree 
 5. [Entry 5: [10-Feb-2288] Mystic Pines retirement home: not hiding a dark secret. Well, fancy that...](http://BKLaughton.com/AnotherDayInTheWasteland/entries/entry_5.html)
 6. [Entry 6: [08-Mar-2288] Blake Abernathy sent word back that the wrecked Tato plants can’t be pulled...](http://BKLaughton.com/AnotherDayInTheWasteland/entries/entry_6.html)
 7. Entry 7: Unencrypting...
-<span class="blinking-cursor">&#9632;</span>
 
 ---
 #### [Follow B.K. Laughton:](http://bklaughton.com) 
