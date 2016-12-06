@@ -1,4 +1,4 @@
-# Another day in the wasteland<span class="blinking-cursor">&#9632;</span>
+# Another day in the wasteland<span class="blinking-cursor">&#9646;</span>
 ---
 
 The terminal flickers to life with a reverberating thrum, revealing a file-tree crowded with time-stamped text files. You seem to have happened upon some sole survivor's personal log...
