@@ -12,7 +12,3 @@ The terminal flickers to life with a reverberating thrum, revealing a file-tree 
 5. [Entry 5: [10-Feb-2288] Mystic Pines retirement home: not hiding a dark secret. Well, fancy that...](http://BKLaughton.com/AnotherDayInTheWasteland/entries/entry_5.html)
 6. [Entry 6: [08-Mar-2288] Blake Abernathy sent word back that the wrecked Tato plants can’t be pulled...](http://BKLaughton.com/AnotherDayInTheWasteland/entries/entry_6.html)
 7. Entry 7: Unencrypting...
-
----
-#### [Follow B.K. Laughton:](http://bklaughton.com) 
-[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
