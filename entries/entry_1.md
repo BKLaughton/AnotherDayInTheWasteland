@@ -23,7 +23,3 @@
 * **[30-Nov-2287]** I found some basketball hoops in a scrapyard; maybe I should erect a court on one of the vacant lots in Sanctuary? The Red Rockets vs the Sanctuary Saints, 3 on 3, weekly showdown. Might be good for morale. Or is that completely crazy? I don't even know anymore. Fuck it, I'm putting the hoops up.
 
 #### [_HOME_](/../../../AnotherDayInTheWasteland/)
-
----
-#### [Follow B.K. Laughton:](http://bklaughton.com) 
-[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
