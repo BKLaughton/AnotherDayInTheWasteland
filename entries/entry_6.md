@@ -1,4 +1,3 @@
-<div class="scanlines">
 ## Entry 6: [08-Mar-2288] Blake Abernathy sent word back that the wrecked tato plants can’t be pulled... 
 
 * …what does he mean it can’t be pulled? This clown is supposed to be a farmer; must I do everything myself? I literally have to trek across the wasteland to pull up a goddamned tato vine. Fucking useless.
@@ -27,4 +26,3 @@
   I’d forgotten about the view from Fort Hagen’s rooftop. Soon.
   
 #### [_HOME_](/../../../AnotherDayInTheWasteland/) 
-</div>
