@@ -24,5 +24,7 @@
 * __[21-Mar-2288]__ Dead settlers at Fort Hagen. What’s the point in even trying? Ultimately, we’re all going to end up just like them. We might think we’re clever, programming a Protectron to clear out a squad of synths, but inevitably we just end up pinned in a corner, with an angry protectron firing at us on one side, and the synths on the other, while a mk II Turret pumps us full of lead from the side. 
 
   I’d forgotten about the view from Fort Hagen’s rooftop. Soon.
-  
+
+#### [_PREVIOUS ENTRY_](http://bklaughton.com/AnotherDayInTheWasteland/entries/entry_5.html)
+#### [_NEXT ENTRY_](http://bklaughton.com/AnotherDayInTheWasteland/entries/entry_7.html)
 #### [_HOME_](/../../../AnotherDayInTheWasteland/) 
