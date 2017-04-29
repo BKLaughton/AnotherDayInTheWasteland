@@ -60,4 +60,6 @@
 
     I think I might stay at Sunshine Barracks tonight.
 
+#### [_PREVIOUS ENTRY_](http://bklaughton.com/AnotherDayInTheWasteland/entries/entry_3.html)
+#### [_NEXT ENTRY_](http://bklaughton.com/AnotherDayInTheWasteland/entries/entry_5.html)
 #### [_HOME_](/../../../AnotherDayInTheWasteland/)
